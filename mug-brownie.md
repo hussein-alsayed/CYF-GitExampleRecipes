@@ -1,4 +1,4 @@
-I love this recipe, because it's so simple to make.
+I love this recipe, because it's so simple to make. I was following an online git branches course and I saw it there!
 
 Often times, I will skip the microwave stage, and just eat the brownie mix. There no egg in it, so it's not even a salmonella risk!
 
